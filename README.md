@@ -3,15 +3,7 @@
 GTA V Kiddions Mod Menu is one of the best free external mod menus for GTA 5 Online.
 With Kiddions Modest Menu, you can safely use features like God Mode, Money Options, Teleport, and more without injecting files into the game.
 
-🔥 In this video you will learn:
 
-How to download Kiddions Mod Menu
-
-How to install and use Kiddions safely
-
-Best settings for GTA 5 Online
-
-Is Kiddions Mod Menu undetected and safe?
 
 ⚠️ Kiddions Mod Menu is an external mod menu, which makes it safer than most internal menus.
 Use mods at your own risk and avoid abusing money features.
